@@ -5,7 +5,7 @@ The written content, layout, and design of this homepage are licensed under the
 **Creative Commons BY-NC-ND 4.0** license.  
 You may view and share it, but **you may not modify or reuse** parts of it without permission.
 
-© 2025 [Your Name] — all rights reserved.
+© 2025 Klejdi Janari — all rights reserved.
 
 ---
 
